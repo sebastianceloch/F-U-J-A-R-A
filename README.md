@@ -1,7 +1,7 @@
 # F-U-J-A-R-A
 Frajerski
 Ujebany
-Juchą
+Jogurtem
 Asembler
 Rucham
 w
